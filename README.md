@@ -1,1 +1,1 @@
-# These are my posters presented at various Poster Symposiums.
+# These are my research posters presented at various Poster Symposiums.
